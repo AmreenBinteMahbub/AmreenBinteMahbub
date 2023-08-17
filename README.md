@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Amreennn
 - 👀 I’m interested in reading and writing novels.
-- 💞️ Looking to collaborate on-well-not here.
+- 
+- 💞️ Wanna be 'into' coding but my bad fate lol
 - 📫 Messed up :")
 
 <!---
